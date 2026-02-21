@@ -1,1 +1,1 @@
-# Master-Market-Momentum-How-the-Impulse-Trend-Levels-Indicator-by-InfinityAlgo-Revolutionizes-Trading
+# Master-Market-Momentum
